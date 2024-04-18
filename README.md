@@ -28,7 +28,7 @@
 ![image](https://github.com/Wernigerode23/13-02/assets/153208339/e03ee788-bd22-4a15-b818-646a34c05e05)
 ![image](https://github.com/Wernigerode23/13-02/assets/153208339/e7b8b0d1-73f4-4dd7-83b1-0235314896bd)
 ![image](https://github.com/Wernigerode23/13-02/assets/153208339/ced94169-7b53-419c-a9ff-48dfbadc884c)
-![image](https://github.com/Wernigerode23/13-02/assets/153208339/1a3a052a-77c8-4583-bc7e-2a16d9ee78f7)
+![image](https://github.com/Wernigerode23/13-02/assets/153208339/4d797338-9327-4b38-9c77-55178d04815c)
 ![image](https://github.com/Wernigerode23/13-02/assets/153208339/a7cc71c3-37a3-4f83-a1f0-458791cb5a94)
 
 
